@@ -9,7 +9,7 @@
 [![CPU-Z]((3).gif)](https://www.nicovideo.jp/watch/sm31931349)
 [![CPU-Z]((4).gif)](https://www.nicovideo.jp/watch/sm31931349)
 
-[![CPU-Z]((5).gif)](https://www.nicovideo.jp/watch/sm31931349)
-[![CPU-Z]((6).gif)](https://www.nicovideo.jp/watch/sm31931349)
-[![CPU-Z]((7).gif)](https://www.nicovideo.jp/watch/sm31931349)
-[![CPU-Z]((8).gif)](https://www.nicovideo.jp/watch/sm31931349)
+[![CPU-Z]((5).gif)](https://twitter.com/Kunnadash)
+[![CPU-Z]((6).gif)](https://twitter.com/Kunnadash)
+[![CPU-Z]((7).gif)](https://twitter.com/Kunnadash)
+[![CPU-Z]((8).gif)](https://twitter.com/Kunnadash)
